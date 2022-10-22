@@ -2,4 +2,4 @@ My name is Georgia and Iâ€™m an archaeologists. My favorite supervillain is Raâ€
 
 My favorite food is nachos.
 
-This is different
+My favorite color is pink.
